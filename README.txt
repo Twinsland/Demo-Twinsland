@@ -1,0 +1,1 @@
+Images réalistes à générer ou remplacer ici.
